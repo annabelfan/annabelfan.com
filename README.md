@@ -1,2 +1,0 @@
-# annabelfan.com
-personal website
